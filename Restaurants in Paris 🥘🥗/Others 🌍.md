@@ -7,3 +7,5 @@ Created: October 18, 2021 11:29 AM
 - **Les 3 Cèdres,** 6 Rue Michel Peter, 75013 Paris - [https://goo.gl/maps/d8HdqQ1zBXVSJAbB6](https://goo.gl/maps/d8HdqQ1zBXVSJAbB6) (Lebanese 🇱🇧)
 - **AlKaram Paris 75015,** 15 Rue Ferdinand Fabre, 75015 Paris - [https://g.page/alkaramparis75015?share](https://g.page/alkaramparis75015?share) (Lebanese 🇱🇧)
 - **Joayo** **Assas**, 54 Rue d'Assas, 75006 Paris, France - [https://goo.gl/maps/uYTSTDu17VH87hVy7](https://goo.gl/maps/uYTSTDu17VH87hVy7) (Korean 🇰🇷)
+- **Urfa Durum**, 58 Rue du Faubourg Saint-Denis, 75010 Paris, France - [https://goo.gl/maps/myo28RYRJVhNxFBC6](https://goo.gl/maps/myo28RYRJVhNxFBC6)
+- **Urfa Durum 2** (if 1st one is closed), 10 Rue du Faubourg Saint-Denis, 75010 Paris, France - [https://g.page/urfa-durum-10?share](https://g.page/urfa-durum-10?share) (Turkish/Kurdish) 
